@@ -1,0 +1,3 @@
+🔭 Estou buscando oportunidade como Dev Front end ou back end...
+🌱Estou estudando full stack na Generetion Brasil, e Go-It..
+😄 Pronouns:Ele/Dele..
